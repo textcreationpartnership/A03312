@@ -36,11 +36,35 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The noblenesse of the asse A worke rare, learned, and excellent. By A.B.Nobilita dell'asino. English
+
+1. The Nobleneſſe of the
+Aſſe.
+
 #####Body#####
 
+1. The Nobleneſſe of the
+Aſſe.
+
+    _ Of the Dogge. 1.
+
+    _ Of the Horſſe. 2.
+
+    _ Of the Lyon. 3.
+
+    _ Of the Ape. 4.
+
+    _ Of the Elephant. 5.
+
+    _ Of the Aſſe. 6.
+
+1. The Nobleneſſe of the
+Aſſe.
+
 #####Back#####
-The noblenesse of the asse A worke rare, learned, and excellent. By A.B.Nobilita dell'asino. English
+LONDON
+Printed by Tho. Creede,
+and are to be ſold by William Barley, at his ſhop
+in Gratious ſtreete
 **Types of content**
 
   * There are 122 **verse** lines!
